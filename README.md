@@ -8,6 +8,9 @@ Dopo Forum Pa:
 3. Su SOS tariffe c'è una descrizione di questo nuovo [operatore](https://www.sostariffe.it/news/iliad-sara-il-4-operatore-mobile-low-cost-259422/)
 3. Federico d'Alessio ,un responsabile di AWS (Amazon web services), mi ha detto che su linkedin (ricerca AWS) ci sono delle posizioni aperte anche per profili come il tuo . Dagli un'occhiata sempre se vuoi:) [AWS](https://aws.amazon.com/it/) 
 4. Almaviva azienda Romana ,specializzata nell'innovazione tecnologica , con sedi in tutto il [mondo](http://www.almaviva.it/IT/ChiSiamo/DoveSiamo/Pagine/default.aspx?status=country&idPaese=2).Vai ' se vuoi, a:  [lavora con noi](http://www.almaviva.it/IT/ChiSiamo/LavoraConNoi/Pagine/Neolaureati-in-discipline-scientifiche.aspx)
+5. Gruppo ISC vicino Roma 3 , attualmente non ha posizioni aperte per economia e commercio , ma da tener presente per innovazione.
+[Azienda giovane](https://www.gruppoisc.com/senza-categoria/job-meeting-roma-2018-partecipazione-di-information-sharing-company/)
+
 
 # 10 maggio 2018
 
