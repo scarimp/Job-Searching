@@ -7,7 +7,7 @@ Dopo Forum Pa:
 2. Su linkedin c'è già la squadra che compone [iliad](https://www.linkedin.com/search/results/index/?keywords=iliad&origin=GLOBAL_SEARCH_HEADER)
 3. Su SOS tariffe c'è una descrizione di questo nuovo [operatore](https://www.sostariffe.it/news/iliad-sara-il-4-operatore-mobile-low-cost-259422/)
 3. Federico d'Alessio ,un responsabile di AWS (Amazon web services), mi ha detto che su linkedin (ricerca AWS) ci sono delle posizioni aperte anche per profili come il tuo . Dagli un'occhiata sempre se vuoi:) [AWS](https://aws.amazon.com/it/) 
-
+4. Almaviva azienda Romana ,specializzata nell'innovazione tecnologica , con sedi in tutto il [mondo](http://www.almaviva.it/IT/ChiSiamo/DoveSiamo/Pagine/default.aspx?status=country&idPaese=2).Vai ' se vuoi, a:  [lavora con noi](http://www.almaviva.it/IT/ChiSiamo/LavoraConNoi/Pagine/Neolaureati-in-discipline-scientifiche.aspx)
 
 # 10 maggio 2018
 
