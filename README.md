@@ -1,4 +1,3 @@
-## Job-Searching
 Job Searching for Marco Luzio:
 ------------------------------
 # 24 maggio 2018
@@ -6,6 +5,7 @@ Dopo Forum Pa:
 
 1. Iliad prossimo operatore telefonico in Italia vai a :[Sito lavora con noi:](http://iliad.it/lavoraConNoi.html)
 2. Su linkedin c'è già la squadra che compone [iliad](https://www.linkedin.com/search/results/index/?keywords=iliad&origin=GLOBAL_SEARCH_HEADER)
+3. Federico d'Alessio un responsabile di AWS (Amazon web services) mi ha detto che su linkedin ci sono delle posizioni aperte anche per profili come il tuo . Dagli un'occhiata sempre se vuoi:) [AWS](https://aws.amazon.com/it/) 
 
 
 # 10 maggio 2018
