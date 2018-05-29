@@ -3,7 +3,7 @@ Job Searching for Marco Luzio:
 
 
 # 29 maggio 2018
-1. Satispay è l’applicazione gratuita per pagare nei negozi convenzionati fisici. [vedi lavora con noi](https://www.satispay.com/jobs/sales-city-manager)
+1. Satispay è l’applicazione gratuita per pagare nei negozi convenzionati che stanno sul territorio. [vedi lavora con noi](https://www.satispay.com/jobs/sales-city-manager)
 2. [XIAOMI](https://www.mi.com/it/) società cinese sbarcata in [Italia](https://www.mi.com/it/about/) ricerca figure professionali  su [linkedin](https://www.linkedin.com/company/xiaomi-technology/jobs/)
 
 
